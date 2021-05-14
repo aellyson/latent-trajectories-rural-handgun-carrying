@@ -1,0 +1,1 @@
+# latent-trajectories-rural-handgun-carrying
